@@ -1,1 +1,1 @@
-# nsei
+# Jojo Bizarre Adventures
